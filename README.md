@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @officials299
-- 👀 I’m interested in bank details.
-- 🌱 I’m currently learning how hack onln acctt
-- 💞️ I’m looking to collaborate on bank acct
-- 📫 How to reach me ICQ @band007
+- 👀 I’m interested in bank logs/details.
+- 🌱 I’m currently learning how hack network carriers
+- 💞️ I’m looking to collaborate on onlyfans project
+- 📫 How to reach me on ICQ on @band007
 
 <!---
 officials299/officials299 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
